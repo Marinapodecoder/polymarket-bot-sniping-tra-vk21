@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with exclusive Polymarket Module | trade-sniping + trailing-stops, the #1 module. Includes trade-sniping and trailing-stops for a smoother and more
 
 
 
